@@ -1,2 +1,1 @@
-# ECKSTASYY.github.io-
-MDMA Website
+#MDMA Website
